@@ -1,0 +1,4 @@
+* LIVE
+* LAUGH
+* LOVE
+ 
